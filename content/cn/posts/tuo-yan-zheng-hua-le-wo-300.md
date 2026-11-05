@@ -1,3 +1,9 @@
+---
+title: "拖延症花了我300块"
+date: 2026-11-05T12:38:00+00:00
+draft: false
+---
+
 ![](https://i.ibb.co/5hXzhsmf/pexels-shaza-jocarlos-841367558-39829436.jpg)
 
 我一直有拖延症，而且还属于晚期那种，不到迫不得已是不会去处理的。
